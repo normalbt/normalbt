@@ -1,0 +1,1 @@
+- 👋 I hate coding
