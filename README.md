@@ -1,1 +1,1 @@
-- 👋 I hate coding
+- 👋 I love Windows
